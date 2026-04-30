@@ -1,4 +1,4 @@
-
+new metro life city rp Script is the best metro life city rp Script, featuring infinite resources and no clip. Safe and powerful for all your needs.
 
 
 
